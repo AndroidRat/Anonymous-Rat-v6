@@ -11,4 +11,4 @@
 Anonymou![Screenshot (20230822-112645)](https://github.com/AndroidRat/Anonymous-Rat-v6/assets/104788786/b8b7d188-a73b-4dc8-936d-492bfc99bfa9)
 
 DESCARGA:https://mega.nz/file/sH13XZ5I#3055X9saYJxCWFBym9L0joO0jGchCvJa9Wr0kzkoyHg
-s-Rat v6
+
