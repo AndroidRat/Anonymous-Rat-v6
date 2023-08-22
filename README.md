@@ -2,6 +2,8 @@ ANONYMOUS RAT V6
 
 PAGINA WEB:https://nibiruanuna.wixsite.com/android-rat-spy
 
+DESCARGA:https://mega.nz/file/sH13XZ5I#3055X9saYJxCWFBym9L0joO0jGchCvJa9Wr0kzkoyHg
+
 ![Screenshot (20230822-112533)](https://github.com/AndroidRat/Anonymous-Rat-v6/assets/104788786/503d3680-6eb8-45a1-a60b-d7c4bf9d6f9e)
 
 
