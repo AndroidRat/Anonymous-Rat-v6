@@ -15,7 +15,7 @@ DESCARGA:https://mega.nz/file/oDkHkJzC#F6j6H3EMY4-IpOQowxDEEhVuTQaIWdF1FtmRMWg7k
 
 Anonymou![Screenshot (20230822-112645)](https://github.com/AndroidRat/Anonymous-Rat-v6/assets/104788786/b8b7d188-a73b-4dc8-936d-492bfc99bfa9)
 
-DESCARGA:https://mega.nz/file/gClz0Kra#xh_zF8bX7jaSPW2er3g9oNNdMbmPIbM1eEHTqrPdD30
+DESCARGA:https://mega.nz/file/oDkHkJzC#F6j6H3EMY4-IpOQowxDEEhVuTQaIWdF1FtmRMWg7kWQ
 
 PAGINA WEB:https://nibiruanuna.wixsite.com/android-rat-spy
 
