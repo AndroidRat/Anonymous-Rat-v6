@@ -2,7 +2,7 @@ ANONYMOUS RAT V6
 
 PAGINA WEB:https://nibiruanuna.wixsite.com/android-rat-spy
 
-DESCARGA:https://mega.nz/file/ZKMBVJZA#NxRWc5Q0ynxMyl-6EMSqEoQfUG8nB2ExyYoqTs5003I
+DESCARGA:https://mega.nz/file/gClz0Kra#xh_zF8bX7jaSPW2er3g9oNNdMbmPIbM1eEHTqrPdD30
 ![Screenshot (20230822-112533)](https://github.com/AndroidRat/Anonymous-Rat-v6/assets/104788786/503d3680-6eb8-45a1-a60b-d7c4bf9d6f9e)
 
 
@@ -14,7 +14,7 @@ DESCARGA:https://mega.nz/file/ZKMBVJZA#NxRWc5Q0ynxMyl-6EMSqEoQfUG8nB2ExyYoqTs500
 
 Anonymou![Screenshot (20230822-112645)](https://github.com/AndroidRat/Anonymous-Rat-v6/assets/104788786/b8b7d188-a73b-4dc8-936d-492bfc99bfa9)
 
-DESCARGA:https://mega.nz/file/ZKMBVJZA#NxRWc5Q0ynxMyl-6EMSqEoQfUG8nB2ExyYoqTs5003I
+DESCARGA:https://mega.nz/file/gClz0Kra#xh_zF8bX7jaSPW2er3g9oNNdMbmPIbM1eEHTqrPdD30
 
 PAGINA WEB:https://nibiruanuna.wixsite.com/android-rat-spy
 
